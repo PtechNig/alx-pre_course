@@ -1,1 +1,1 @@
-I was allowed to use github interface once
+I make use of the interface once
